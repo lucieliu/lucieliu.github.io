@@ -1,3 +1,3 @@
 # lucieliu.github.io
-project of love, for plz and ygl
+for pl and yg
 to be continued
